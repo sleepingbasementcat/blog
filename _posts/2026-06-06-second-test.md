@@ -1,5 +1,5 @@
 ---
 title: "Test Post"
-date: 2026-06-60
+date: 2026-06-06
 ---
 *TESTESTESET*
