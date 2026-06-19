@@ -1,6 +1,6 @@
 ---
 title: "What does it mean to be from somewhere?"
-date: 2026-06-11
+date: 2026-06-18
 tags: [quarterlies, brick, thoughts]
 ---
 
