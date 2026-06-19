@@ -4,7 +4,7 @@ date: 2026-06-11
 tags: [introduction, origins, I'm back]
 ---
 
-# I wanted to start writing again.
+### I wanted to start writing again.
 
  **I had a few old ideas floating around** my mind, and some new ones too. Exciting! How fun! But I just wasn't setting aside the time to put them down on paper let alone post them here. I created this blog over a year ago now, in May 2025. The most recent in my on and off again relationship with posting anything publicly. The intention was the same as always - to fill the space up with all the silly ideas and serious writing I would have. Great plan, right?
 

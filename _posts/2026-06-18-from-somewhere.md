@@ -4,7 +4,7 @@ date: 2026-06-18
 tags: [quarterlies, brick, thoughts]
 ---
 
-# Recently, I read <u>last</u> summer's Brick literary journal - [Issue \#115](https://brickmag.com/product/brick-115/).
+### Recently, I read <u>last</u> summer's Brick literary journal - [Issue \#115](https://brickmag.com/product/brick-115/).
 
 **I enjoyed a few stories in the issue,** but one stood out in particular; [Zenas Ubere's](https://zenasubere.com/about/) "Still Lagos" - a travelogue, written in numbered sections of varying length. Each captures a moment of Ubere's return to Lagos.
 
