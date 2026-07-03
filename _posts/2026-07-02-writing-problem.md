@@ -12,7 +12,7 @@ It's almost more embarrassing to write about how I let things go, gave up the pu
 
 My peak moment of writing poetry came in 2012, when I had a few finished poems that I thought were pretty good, and I thought I would submit them for publishing somewhere. I looked around the internet and though I don't recall if I had tried submitting to many places, I at least got a bite from one. [Ditch Poetry](https://www.ditchpoetry.com/) published 4 poems of mine on their site in 2012. They no longer appear there, which is fine, but they can be found with some _time_. I don't hold any illusions that they would be interested in maintaining space for a would be poet who has only published once in 14 years. 
 
-Ditch was about experimental poetry (I say 'was' because the site's date stamp reads 2007). At the time I was experimenting with words, seeing what I could do with the bare minimum, and torturing meaning a little as I went, I guess their editors saw something in it.
+Ditch was about experimental poetry (I say 'was' because the site's date stamp reads 2007). At the time, I was experimenting with words, seeing what I could do with the bare minimum, and torturing meaning a little as I went, I guess their editors saw something in it.
 
 So, to resurrect the poems I wrote, maybe breathe some life back into my writing practice, and with some odd trepidation I can't explain, I'll post a couple of the poems that Ditch accepted:
 
@@ -73,7 +73,7 @@ A motionless ambition. Emotion, less fruition.
 
 I can't help feel like I've been living **Do** for the last 14 years since these were published. Since then, that creativity dwindled. My life was busy, and I'm sure I was creative in other ways. My kids have grown up, I've changed careers, and enjoy some success. However in the late part of 2025, I burned out. After that I reflected on what I needed to do to avoid burning out again. What I came up with is _create_ _more_, or I suppose, just create.
 
-It is now mid-year 2026. The inertia has been intense, and the lure of mindless internet consumption is a a dastardly siren song that lures me into a state of not-doing-anything. Well, as I said in an earlier post. This blog is meant to be an act of creation that will break me into more creativity, week after week.
+It is now mid-year 2026. The inertia has been intense, and the lure of mindless internet consumption is a dastardly siren song that lures me into a state of not-doing-anything. Well, as I said in an earlier post. This blog is meant to be an act of creation that will break me into more creativity, week after week.
 
 This was a difficult post to write. I put it off and almost wrote something else, until I realized that I had already that something else.
 
