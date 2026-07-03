@@ -12,7 +12,7 @@ It's almost more embarrassing to write about how I let things go, gave up the pu
 
 My peak moment of writing poetry came in 2012, when I had a few finished poems that I thought were pretty good, and I thought I would submit them for publishing somewhere. I looked around the internet and though I don't recall if I had tried submitting to many places, I at least got a bite from one. [Ditch Poetry](https://www.ditchpoetry.com/) published 4 poems of mine on their site in 2012. They no longer appear there, which is fine, but they can be found with some _time_. I don't hold any illusions that they would be interested in maintaining space for a would be poet who has only published once in 14 years. 
 
-Ditch was[^1] about experimental poetry, and since I was experimenting with words, seeing what I could do with the bare minimum, and torturing meaning a little as I went, I guess their editors saw something in it.
+Ditch was about experimental poetry (I say 'was' because the site's date stamp reads 2007) since I was experimenting with words, seeing what I could do with the bare minimum, and torturing meaning a little as I went, I guess their editors saw something in it.
 
 So, to resurrect the poems I wrote, maybe breathe some life back into my writing practice, and with some odd trepidation I can't explain, I'll post a couple of the poems that Ditch accepted:
 
@@ -79,5 +79,3 @@ This was a difficult post to write. I put it off and almost wrote something else
 
 Onward.
 
-<br />
-[^1]: I say was, because even though their site is still up, the date stamp says 2007
