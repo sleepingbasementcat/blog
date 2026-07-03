@@ -1,11 +1,11 @@
 ---
 title: I Have A Reading Problem
 date: 2026-06-25
-tags: reading, books, overwhelm
+tags: [reading, books, overwhelm]
 ---
 ### I collect faster than I read.
 
-**There, I said it. That's the problem.** I can't read as fast as I collect the bloody things. I am, at this point, in dire need of a new bookshelf. Right now I have books  stacked, not shelved but stacked in PILES, on top of a wardrobe to the point that they almost touch the ceiling - *and I've got 9 foot high ceilings!!*
+**There, I said it. That's the problem.** I can't read as fast as I collect the bloody things. I am, at this point, in dire need of a new bookshelf. Right now I have books  stacked, not shelved but stacked in PILES, on top of a wardrobe to the point that they almost touch the ceiling - *and I've got 9 foot high ceilings!!* ![A large pile of books](/assets/images/bookPile.jpg )
 
 Part of the problem is that I love books (this may, in fact, be the entire problem). The smell of them, the feel in my hands, the texture of the covers and pages, not to mention the promise of what's inside. This love of books and the written word has led me to subscribe to a few quarterlies and other literary magazines.
 
